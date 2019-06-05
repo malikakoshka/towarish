@@ -1,4 +1,4 @@
-# [Эволюция понятия "душа общества" в XIX-XXI вв.](https://towarish.howareyou.github.io)
+# [Эволюция понятия "душа общества" в XIX-XXI вв.](https://malikakoshka.github.io/towarish/)
 
 Проект по Цифровой Грамотности 
 
